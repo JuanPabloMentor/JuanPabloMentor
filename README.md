@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Sobre Mi:
 Actualmente trabajando en Talento Tech como instructor de diversas tecnologias<br>
 
 
